@@ -1,0 +1,2 @@
+# permata
+kode goedang batoe
